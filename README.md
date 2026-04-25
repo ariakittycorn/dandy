@@ -9,4 +9,4 @@ ariakittycorn@gmail.com
 
 LICENSE: CC0
 
-you can use this picture however you want 
+you can use this however you want 
